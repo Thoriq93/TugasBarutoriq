@@ -1,0 +1,2 @@
+# TugasBarutoriq
+Pak jumadi
